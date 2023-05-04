@@ -1,1 +1,1 @@
-Make everyone happy with websites 😊
+Make everyone happy 😊
